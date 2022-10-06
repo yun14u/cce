@@ -18,7 +18,7 @@ about your role in the respective faith formation program.
 ## For all others
 Thank you for your interest.  Please donate $5 to our parish and
 you will get unlimited access to **ALL** solution sheets for one (1) 
-liturigical year.  Forward to me via email, __yun14u@yahoo.com__, the
+liturgical year.  Forward to me via email, __yun14u@yahoo.com__, the
 confirmation receipt.
 
 [Online Donation](https://www.osvhub.com/holyrosaryparish/giving/funds)
