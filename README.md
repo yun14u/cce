@@ -1,8 +1,8 @@
-#Objective
+# Objective
 I created these word search worksheets for my post-communion faith
 formation class at my parish, Holy Rosary Parish, in Houston, Texas.
 
-#How to get solution key
+# How to get solution key
 ## For catechists who are my colleagues at Holy Rosary Parish
 Please contact me during CCE school year.
 
