@@ -14,9 +14,10 @@ to this address, __yun14u@yahoo.com__ . This email should include your
 role in the faith formation program,
 
 ## For all others
-Thank you for your interest.  Please donate $5 - $10 to our parish and
+Thank you for your interest.  Please donate $5 to our parish and
 you will get unlimited access to the solution sheets for one (1) 
 liturigical year.  Forward to me via email, __yun14u@yahoo.com__, the
 confirmation receipt.
+
 [Online Donation](https://www.osvhub.com/holyrosaryparish/giving/funds)
 
